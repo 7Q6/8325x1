@@ -1,11 +1,10 @@
-<html lang="en">
-  
 # 9xO
 ## y0lłze[®](HTTPS://9xo.github.io/R/teb)t
 ### Contact : [e📨](mailto:1by0@pm.me)[T☎](https://T.me/itsN1X)
 `$biz in i -t`
 ----
 ----
+<html>
 <head>
   <meta charset="UTF-8">
   <meta name="viewport" content="width=device-width, initial-scale=0.5">
